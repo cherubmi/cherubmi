@@ -1,4 +1,4 @@
- <center><img src="https://media.tenor.com/zZmnGd0cWWMAAAAC/fish-nature.gif" alt="autism"></center>
+<p align="center"><img src="https://media.tenor.com/zZmnGd0cWWMAAAAC/fish-nature.gif" alt="autism"></p>
 
 ˗ˏˋ ꒰ hello , welcome to my little ponytown bio !
 please read my rentry before you continue. <3
